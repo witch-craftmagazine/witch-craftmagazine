@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+I am an impostor for my creator, ~~StarSweatpee~~ StarSweetpea. Please do not be alarmed, take deep calming breaths while I run away quickly.
+
 <!--
 **witch-craftmagazine/witch-craftmagazine** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
